@@ -18,6 +18,11 @@ extremely racist kaamoin why u do this
 this is the way
 
 sry cat step on kayboardXD
+
+i fuck ur grandmoter lolololololololol epic trol
+
+
+
 In 1884,  meridian time personnel met
 
  in Washington to change Earth time.
