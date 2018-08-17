@@ -42,3 +42,4 @@
 - plays on laptop
 - ping over 90
 - XD
+- force buys every round
