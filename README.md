@@ -1,3 +1,4 @@
+# vziak is a fkni paster lollolol
 # grief-list-csgo
 list of people u see in mm u must grief
 why grief these poeple?  ?? ? 
